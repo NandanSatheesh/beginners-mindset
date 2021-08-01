@@ -13,8 +13,7 @@
 
 ## Domestication and the dream of the planet 
 
-> Attention is the ability we have to discriminate and to focus only on  
-that which we want to perceive.
+> Attention is the ability we have to discriminate and to focus only on that which we want to perceive.
 
 > The only way to store information is by  agreement. The outside dream may hook our attention, but if we  don't agree, we don't store that information. As soon as we agree, we believe it, and this is called faith. To have faith is to believe unconditionally.
 
