@@ -10,6 +10,7 @@
 	- [The Toltec Path to Freedom](#the-toltec-path-to-freedom)
 	- [The New Agreement](#the-new-agreement)
 
+
 ## Domestication and the dream of the planet 
 
 > Attention is the ability we have to discriminate and to focus only on  
